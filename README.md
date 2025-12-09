@@ -416,3 +416,7 @@ Penjelasan :
 (https://drive.google.com/file/d/1eh-0txEeIZ8DsT4eWH7uwNpB4FiKMuEV/view?usp=sharing)
 (https://drive.google.com/file/d/13Ip5qM03ZeFseJOy2QsBmwMaaf_SSyQN/view?usp=sharing)
 (https://drive.google.com/file/d/1B_1eJdY-r96yYxBRSbLh9h64TT841dKM/view?usp=sharing)
+
+
+# TUGAS 4 - LAPORAN ANALISIS :
+https://docs.google.com/document/d/1ms93-Y7pR__A2h9XgEhe1TjEvt-ZRcoM/edit?usp=sharing&ouid=115687516109980160370&rtpof=true&sd=true
